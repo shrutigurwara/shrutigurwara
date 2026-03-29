@@ -1,4 +1,4 @@
-# Me!!<33
+# Profile README
 
 - Name: Shruti Gurwara;
 - Student at VIT Bhopal University;
